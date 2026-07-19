@@ -4,6 +4,8 @@
 
 <a href="https://ibb.co/v4q5Cjn8"><img src="https://i.ibb.co/v4q5Cjn8/2036c94d917c3b8b71cfdb3e013940b8.jpg"   alt="2036c94d917c3b8b71cfdb3e013940b8" border="0"></a>
 
+
+
 2nd me + yume
 
 Hi ım g.e or kaiser!! Or reichtangle 
@@ -14,3 +16,4 @@ Im a history ch nerd like my twin @ohmygodduh  !!
 
                         İrl Pronouns :: she her
 
+<a href="https://ibb.co/bf7j25R"><img src="https://i.ibb.co/jpH9WkZ/Ba-l-ks-z195-20260719135235.png" alt="Ba-l-ks-z195-20260719135235" border="0"></a>
