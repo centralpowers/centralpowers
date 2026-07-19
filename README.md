@@ -16,8 +16,6 @@ Im a history ch nerd like my twin @ohmygodduh  !!
 
 <a href="https://ibb.co/4nzYLQLH"><img src="https://i.ibb.co/Q3LCV5V4/Ba-l-ks-z196-20260719140711.png" alt="Ba-l-ks-z196-20260719140711" border="0"></a>
 
-                        İrl Pronouns :: she her
-                        
-
+                      
 <a href="https://ibb.co/bf7j25R"><img src="https://i.ibb.co/jpH9WkZ/Ba-l-ks-z195-
 20260719135235.png" alt="Ba-l-ks-z195-20260719135235" border="0"></a>
